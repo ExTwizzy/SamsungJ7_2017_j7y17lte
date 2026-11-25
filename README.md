@@ -1,0 +1,1 @@
+# SamsungJ7_2017_j7y17lte
